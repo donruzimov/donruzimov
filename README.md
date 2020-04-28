@@ -1,2 +1,2 @@
-# donruzimov
+# donruzimov.com
 Wassup ma hommies 
